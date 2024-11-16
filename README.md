@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **miteshpradhan9@gmail.com**
 
-- ⚡ Fun fact **I'm 😉**
+- ⚡ Fun fact **I'm 😉 ***
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
